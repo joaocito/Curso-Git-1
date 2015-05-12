@@ -10,3 +10,4 @@ Vencedores:
 - Rodrigo Teixeira, fui cego no editor, antes de ler a segunda frase.
 - Caio Ergos, uma frase de efeito.
 - Antônio Wellington, demorei mas cheguei!
+- João Marcos, quer tc?

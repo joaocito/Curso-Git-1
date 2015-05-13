@@ -11,3 +11,4 @@ Vencedores:
 - Caio Ergos, uma frase de efeito.
 - Antônio Wellington, demorei mas cheguei!
 - João Marcos, quer tc?
+- Sayonara Santos

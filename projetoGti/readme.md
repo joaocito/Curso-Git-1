@@ -14,3 +14,4 @@ Vencedores:
 - Sayonara Santos
 - Alef Carneiro Desculpem a demora, enfrentei problemas de compatibilidade... XD
 - Lucas Rodrigues
+- João Citó, Tem uns menino bom novo hoje aí na rua, pra lá e pra cá, que corre pelo certo...
